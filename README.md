@@ -1,2 +1,0 @@
-# mysiteonlyfree
-Free
